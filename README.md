@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RashmyDenagama  
+- 👀 I’m interested in programming, innovative tech projects, and leveraging technology for meaningful impacts.  
+- 🌱 I’m currently learning advanced Java, Android Studio, React, Node.js, and AI-driven development techniques.  
+- 💞️ I’m looking to collaborate on projects related to AI, mobile application development, and innovative problem-solving.  
+- 📫 How to reach me: rashmiproboda7@gmail.com/ www.linkedin.com/in/rashmi-denagama 
+- 😄 Pronouns: she/her 
+- ⚡ Fun fact: My biggest personal achievement this year has been recognizing my self-worth and finding inner peace.  
